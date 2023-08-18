@@ -1,7 +1,7 @@
 x- 👋 Hi, I’m @maxmokrhjv,sdcvbcvcxbmn gfd
 - 👀 I’m interested intui ...dsf
 - 🌱 I’m currently learning ...gklj
-- 💞️ I’m lookinadsg to collaborate on ...asasd
+- 💞️ I’m looxzcxzczxcxzckinadsg to colcxlaborate ascxzon ...asasd
 - 📫 How to reach me ...
 asdjdfhfghvxc
 <!---xsaaxsx
