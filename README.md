@@ -1,6 +1,6 @@
-x- 👋 Hi, I’m @maxmokrhjv,sdcvbcvcxbmn gfd
+xzccx- 👋 Hi, I’m @maxmokrhjv,sdcvbcvcxbmn gfd
 - 👀 I’m interested intui ...dsf
-- 🌱 I’m currently learning ...gklj
+- 🌱 I’m currently learning ...gsasklj
 - 💞️ I’m looxzcxzczxcxzckinadsg to colcxlaborate ascxzon ...asasd
 - 📫 How to reach me ...
 asdjdfhfghvxc
