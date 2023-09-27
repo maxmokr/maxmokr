@@ -1,6 +1,6 @@
 xxzccx- 👋 Hi, I’m @mxbvaxmokrhjv,sdcvbcvcxbmn gfd
 - 👀 I’m interested intui ...dsf
-- 🌱 I’m curvxcvcrently learning .cxv..gsasklj
+- 🌱 I’m curvxcvcrently learning .cxv..gsaskljsdfcvxz
 - 💞️ I’m looxzcxzczxcxzckinadsg to cosdclcxlaborate ascxzon ...aszxcasdcxzasdxcvxcxzcxzc
 - 📫 How to reach me xc...
 asdjdfhfghvxcvcxasdfasdf
