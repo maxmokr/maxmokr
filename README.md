@@ -1,7 +1,7 @@
  xxzccx- 👋 Hi, I’m @mxbvaxmokrhjv,sdcvbcівфіввфіvcxbmn gfd
 - 👀 I’m interested intui ...dssacxzczxcfxvzxzcxzc
 - 🌱 I’m curvxcvcrently ропfsdfsdsdasdasdaskhjlearsadasdsdfdscфівфівфівxvadsasdasdasdasasdasdxzcxzcfаяваsaxczxhgndjhмсмning sdasda.cxv..gsaskljsdfcvxzzxasdcxzcczвіавіаxcasdsazxcasмсчsdasdфчіфsaddfasdfasdsadфівіфвіів
-- 💞️ I’m looxzcxzczxcxzcksdfdsinsadasdasdasdasdadsg to ячячcosdclcxlaborate ascxzon .klj...aszxcasdcxzaasdsadasdsdxcvxcxzcxzc
+- 💞️ I’m looxzcxzczxcxzcksdfdsinsadasdasdasdasdadsg to ячячcosdclcxlaborate ascxzon .klj...aszxcasdcxzaasdsadasdsdxcvasdsadasdxcxzcxzc
 - 📫 How to reach me xc...sdfdsf
 asdjdfhfghvxcvcxasdfasdfлроифівdgfhdgfфівіфвhcxzxcмсч
 maxmokr/maxmokr cxvis a ✨x special ✨xa reposigbzftory asdzxcbecause ghjfhits фів`README.md` (thіфвіфвфівіфis file) appears on your GitHub profile.daf
