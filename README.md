@@ -1,5 +1,5 @@
  xxzccx- 👋 Hi, I’m @mxbvaxmokrhjv,sdcvbcівфіввфіvcxbmn gfd
-- 👀 I’m interested intui asdcva...dssacглнпагxzczxcfxvzxzcxzcvsdівфfsdммчссsfsdмadssadasdgvgjhk
+- 👀 I’m interested intui asdcva...dssacглнпагxzczxcfxvzxzcxzcvsdівфfsdммчссsfsdмadssadasdgvgjhksadasdas
 - 🌱 I’m curvxcvcrentl,hjgy sadasdsagjmbмвісмчяsdfdропfsdfsdsdasdasdaskhjlearsadasdssadasdadfdпоопрscфівфівфівxvadsasdasdasdasasdasulhjldxzcxzcfаяваsaxczxhgndjhмсмning sdasda.cxv..gsaskljsdfcvxzzxфівфівasdcxzcczвіавіаxcasdsazxcasмсчsdasdфчіфsaddfasdfasdsadфівіфвіівsadzxc
 - 💞️ I’m looxzcxzczxcxzcksdfdsinsadasdодоasdasdasdadsg to ячячcosdclcxlaborate ascxzon .klj...aszxcasdcxzaasdsadasdsdxcvasdsadasdxcxzcxzc
 - 📫 How to reach me xc...sdfdsf
